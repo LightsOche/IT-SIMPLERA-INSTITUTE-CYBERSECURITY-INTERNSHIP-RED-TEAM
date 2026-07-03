@@ -93,7 +93,7 @@ Cybersecurity Enthusiast | Red Team Learner | Offensive Security
 
 GitHub: https://github.com/LightsOche
 
-LinkedIn: *(Add your LinkedIn profile link here.)*
+LinkedIn: www.linkedin.com/in/lights-oche-892999185
 
 ---
 
